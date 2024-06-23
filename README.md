@@ -101,7 +101,6 @@ For any inquiries, please contact us at [your_email@example.com]![8](https://git
 
 ---
 
-*This README was generated with ❤️ by the Foody team.*
 
 
 
