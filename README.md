@@ -38,3 +38,25 @@ Responsive Design: Your website will look great on any device, from mobile phone
 Effortless Communication: Contact forms and Google Map integration make it easy for customers to reach you and find your physical store.
 Conclusion
 Foody is the best choice to launch your organic fruits and vegetable website quickly and efficiently. With its modern design, extensive features, and ease of customization, Foody will help your online fruit business thrive.
+
+![1](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/f8c46aed-f6c8-4bda-bf47-8b5f8989218f)
+
+![2](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/8c32d485-6ad6-48bd-beaf-b4c14ae9d78b)
+
+![3](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/92636f7b-0f0a-433a-a5e0-8cfed9e53efb)
+
+![4](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/78914b8c-1de5-48c9-9b86-583dde3f737a)
+
+![5](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/14e31f61-63a4-4f23-ab79-66b17353b5ad)
+
+![6](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/d897a3d5-adbd-4575-8bbd-bfc42ccb0320)
+
+![7](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/eb398740-8025-45da-9fda-e70c368b8744)
+
+![8](https://github.com/engrmumtazali0112/Website_Design/assets/156393630/3b58fb30-9f72-45e4-83fb-de5934622f6f)
+
+
+
+
+
+
